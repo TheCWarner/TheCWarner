@@ -1,8 +1,10 @@
-- 👋 Hi, I’m @TheCWarner
-- 👀 I’m interested in Syncler & Stremio & Kodi
-- 🌱 I’m currently learning about Torrents
-- 💞️ I’m looking to collaborate on Just learning
-- 📫 How to reach me @ christiansjstoner1@gmail.com
+- 👋 Alright, I’m @thejscstoner 
+- 👀 I’m a big time Streamer.
+- 🌱 love me my ANIMALS, Often prefer their company to HUMANS, but if i haooen to like you then im Ride or Die 🎲 👍🏽.
+- More into 🍆 than 🐱.
+- 💞️ Have an Amazing BF with a butt that defies gravity 😅.
+- 📫 How to reach me christiansjwarner1@gmail.com
+- or Socials @thejscstoner
 
 <!---
 TheCWarner/TheCWarner is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
